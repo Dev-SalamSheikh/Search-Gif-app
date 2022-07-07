@@ -1,1 +1,1 @@
-<img src="https://ibb.co/NjJHgQR" alt="project image"/>
+<img src="https://freeimage.host/i/j0GBmN" alt="project image"/>
